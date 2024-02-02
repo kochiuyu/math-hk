@@ -6,7 +6,9 @@
 
 粵教數|小一|20以內的數|認識1-20各數/進行順數和倒數: https://youtu.be/LTVkVCrC3fw
 
+
 粵教數|小一|20以內的數|序數和基數: https://youtu.be/rIUmvqwWgdM
+
 
 粵教數|小一|20以內的數|認識10以內的奇數和偶數: https://youtu.be/jTulG4SuDUg
 
@@ -15,6 +17,9 @@
 
 
 粵教數|小一|基本加法和減法|基本減法: https://youtu.be/jbzuysJ4Uz0
+
+
+粵教數|小一|基本加法和減法|0的概念: https://youtu.be/Bn-mesNe_m4
 
 
 粵教數|小一|100以內的數|認識21-100各數: https://youtu.be/tp8PGVUSwjQ
