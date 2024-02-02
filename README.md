@@ -140,6 +140,13 @@
 
 粵教數|小四|分數(二)|各種同分母分數的比較: https://youtu.be/i1KnHDJh5nQ
 
+
+粵教數|小四|小數(一)|小數/十分位、 百分位、 千分位和萬分位: https://youtu.be/3Rar1uNlnnY
+
+
+粵教數|小四|小數(二)|小數加減: https://youtu.be/KktWeAaQjNQ
+
+
 ## 小五
 
 粵教數|小五|多位數|四捨五入 https://youtu.be/NwVPCUSO-BY
@@ -164,7 +171,3 @@
 
 
 
-粵教數|小四|小數(一)|小數/十分位、 百分位、 千分位和萬分位: https://youtu.be/3Rar1uNlnnY
-
-
-粵教數|小四|小數(二)|小數加減: https://youtu.be/KktWeAaQjNQ
