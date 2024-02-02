@@ -6,6 +6,7 @@
 
 粵教數|小一|20以內的數|認識1-20各數/進行順數和倒數: https://youtu.be/LTVkVCrC3fw
 
+粵教數|小一|20以內的數|序數和基數: https://youtu.be/rIUmvqwWgdM
 
 粵教數|小一|20以內的數|認識10以內的奇數和偶數: https://youtu.be/jTulG4SuDUg
 
