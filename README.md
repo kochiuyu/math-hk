@@ -31,7 +31,7 @@
 粵教數|小一|100以內的數|認識個位和十位的概念: https://youtu.be/b74Jwx2xWMg
 
 
-粵教數|小一|加法和減法(一)|認識加法結合性質: https://youtu.be/2XcyMdWWC5g
+粵教數|小一|加法和減法(一)|加法結合性質: https://youtu.be/2XcyMdWWC5g
 
 
 粵教數|小一|加法和減法(一)|進行兩個數的加法運算/認識加法的直式: https://youtu.be/tVbQOwFVhVU
