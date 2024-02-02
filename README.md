@@ -22,6 +22,9 @@
 粵教數|小一|基本加法和減法|0的概念: https://youtu.be/Bn-mesNe_m4
 
 
+粵教數|小一|基本加法和減法|加法交換性質 https://youtu.be/MZu3zx48P-Y
+
+
 粵教數|小一|100以內的數|認識21-100各數: https://youtu.be/tp8PGVUSwjQ
 
 
