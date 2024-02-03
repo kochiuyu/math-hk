@@ -170,4 +170,22 @@
 粵教數|小五|分數(五)|分數四則混合 https://youtu.be/LEs6yn5Lemc
 
 
+## 小六
 
+
+粵教數|小六|小數(四)|小數除法和小數點 https://youtu.be/lSPMGqkd1KQ
+
+
+粵教數|小六|小數(四)|小數除法 https://youtu.be/akROnKkHYo0
+
+
+粵教數|小六|小數(四)|小數四則 https://youtu.be/Prjv0aSpjY0
+
+
+粵教數|小六|小數(四)|小數與分數的互化 Link: https://youtu.be/IYqGBSOiyrs
+
+
+粵教數|小六|小數(四)|百分數 https://youtu.be/KCJqMrobNfw
+
+
+粵教數|小六|百分數(一)|百分數/小數/分數互化 https://youtu.be/H67HnATd6oQ
