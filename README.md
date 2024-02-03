@@ -170,6 +170,16 @@
 粵教數|小五|分數(五)|分數四則混合 https://youtu.be/LEs6yn5Lemc
 
 
+粵教數|小五|代數的初步認識|未知量 https://youtu.be/krBYtuoJJhI
+
+
+粵教數|小五|簡易方程(一)|一步方程 https://youtu.be/7voScHM1yQA
+
+
+粵教數|小五|簡易方程(一)|兩步方程 https://youtu.be/e5cGC5yydJg
+
+
+
 ## 小六
 
 
